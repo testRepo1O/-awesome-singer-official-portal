@@ -1,1 +1,1 @@
-# -awesome-singer-official-portal
+Brian Hugh Warner (born January 5, 1969), known professionally as Marilyn Manson, is an American singer, songwriter, actor, painter, and writer. He is known for his controversial stage personality and image as the lead singer of the band of the same name, which he co-founded with guitarist Daisy Berkowitz in 1989 and of which he remains the only constant member. 
